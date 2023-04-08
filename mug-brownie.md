@@ -2,7 +2,7 @@ I love this recipe, because it's so simple to make.
 
 Often times, I will skip the microwave stage, and just eat the brownie mix. There no egg in it, so it's not even a salmonella risk!
 
-I discovered this recipe by watching Youtube.
+I discovered this recipe by watching Youtube. Please search Gordon Ramsay.
 
 What you need
 =============
