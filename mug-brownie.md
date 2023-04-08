@@ -11,7 +11,7 @@ What you need
 * A pinch of salt
 * 2 tbsp olive oil
 * 3 tbsp water
-* frosting
+* pink frosting
 
 Steps
 =====
@@ -20,4 +20,4 @@ Steps
 2. Add the oil and water.
 3. Mix until everything is mixed together well.
 4. Microwave for 1 minute 40 seconds.
-5. Add frosting.
+5. Add pink frosting.
